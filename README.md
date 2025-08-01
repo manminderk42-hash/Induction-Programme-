@@ -22,7 +22,7 @@
 - HOD ( Applied Science) Dr. Harpreet Kaur Grewal also introduce us with the department
 - HOD ( Information Technology ) Kulwinder Singh Mann make us aware about the college
 
-[img](https://scontent.fixc4-3.fna.fbcdn.net/v/t39.30808-6/525867939_1175958287908217_1682616030293653068_n.jpg?_nc_cat=110&ccb=1-7&_nc_sid=833d8c&_nc_ohc=KJwqeEVvdPIQ7kNvwGRy0jK&_nc_oc=AdmbOi2o0eDmPzsDKEKvF-wvgDZYSBcdiXuD_L592VfNAQar-kUO-VJr0j27dsWFDFpj_gVCHK_b1XgGjAo47E4O&_nc_zt=23&_nc_ht=scontent.fixc4-3.fna&_nc_gid=Hc7dT4Pa7c0cxpOeeXIDyw&oh=00_AfQk1GPD0AMhG26eQdKOgiriAamxg9avROETjOdDCc7wZg&oe=6892BEC3)
+  [img](https://scontent.fixc4-3.fna.fbcdn.net/v/t39.30808-6/525867939_1175958287908217_1682616030293653068_n.jpg?_nc_cat=110&ccb=1-7&_nc_sid=833d8c&_nc_ohc=KJwqeEVvdPIQ7kNvwGRy0jK&_nc_oc=AdmbOi2o0eDmPzsDKEKvF-wvgDZYSBcdiXuD_L592VfNAQar-kUO-VJr0j27dsWFDFpj_gVCHK_b1XgGjAo47E4O&_nc_zt=23&_nc_ht=scontent.fixc4-3.fna&_nc_gid=Hc7dT4Pa7c0cxpOeeXIDyw&oh=00_AfQk1GPD0AMhG26eQdKOgiriAamxg9avROETjOdDCc7wZg&oe=6892BEC3)
 - Mr.Akshit Girdhar introduce us with the subjects
 
-[img](https://scontent.fixc4-2.fna.fbcdn.net/v/t39.30808-6/527300469_1175958524574860_5923213620415709678_n.jpg?_nc_cat=106&ccb=1-7&_nc_sid=833d8c&_nc_ohc=3NiCKL2dC9MQ7kNvwEEYeQR&_nc_oc=AdkjkjpbLKHkC-a-yUdpHqqmtP6d6rZ0EhNaBV3Mw9SrbJWxirB6fhxgoDV8kqQdB2wUfHJ2IhF3PdzY_TNBgMai&_nc_zt=23&_nc_ht=scontent.fixc4-2.fna&_nc_gid=naTzrHZvnHrnUeUQbKqs-w&oh=00_AfSjuhzaUp_LJZE-yLiDpAUEOFec2qiob_w4Q6kEnC_0VQ&oe=6892AA36)
+  [img](https://scontent.fixc4-2.fna.fbcdn.net/v/t39.30808-6/527300469_1175958524574860_5923213620415709678_n.jpg?_nc_cat=106&ccb=1-7&_nc_sid=833d8c&_nc_ohc=3NiCKL2dC9MQ7kNvwEEYeQR&_nc_oc=AdkjkjpbLKHkC-a-yUdpHqqmtP6d6rZ0EhNaBV3Mw9SrbJWxirB6fhxgoDV8kqQdB2wUfHJ2IhF3PdzY_TNBgMai&_nc_zt=23&_nc_ht=scontent.fixc4-2.fna&_nc_gid=naTzrHZvnHrnUeUQbKqs-w&oh=00_AfSjuhzaUp_LJZE-yLiDpAUEOFec2qiob_w4Q6kEnC_0VQ&oe=6892AA36)
