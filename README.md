@@ -1,4 +1,4 @@
-# Induction-Day 1
+# Day 1
 ## 8:30 to 9:30 
 - Shabad Kirtan
 
@@ -26,6 +26,21 @@
 - Er. Ravinder Garg (Chief Engineer at Muncipal Corporation Ludhiana)
   
   [img](https://scontent.fixc4-2.fna.fbcdn.net/v/t39.30808-6/526701126_1175958494574863_7821679819071393773_n.jpg?_nc_cat=106&ccb=1-7&_nc_sid=833d8c&_nc_ohc=AGy0qYWXLUoQ7kNvwG41lwp&_nc_oc=AdlOluiO_J65cGvjdOIYb7PQWmbdcAKvhOakg098CujBn5Poglj4M9Sqyev01nXX4JnK645RlnnGitq4dh4SKUHA&_nc_zt=23&_nc_ht=scontent.fixc4-2.fna&_nc_gid=0A18womBHUkqJLSR6lbXrw&oh=00_AfSBa0MBeYzNQNt_fDnwCDZ3FAllhh4mA43hXY3m4OOasg&oe=6892B0A7)
-  
-
+# Day 2
+## 9:30 to 10:30 
+- English Proficiency Test
+## 10:30 to 11:30 
+- Mathematics Proficiency Test
+## 1:15 to 2:45
+- Volunteers came to acknowledge us with the Satya Schlorship
+## 2:45 to 3:45 
+- Expert lecture by Dr. Arashdeep Singh on "Food:A Pivotal Role in Student's Overall Wellness"
+## 3:45 to 4:15 
+- Seniors introduced with the Git Hub
+# Day 3
+## 9:00 to 11:15 
+- Dr. Jaswinder Singh Gave us the great lecture us about gurmat, science as well as mathematics
+## 11:15 to 1:15 
+Dr. Priya Darshani Mam introduced us with "Universal Human Values"
+ 
   
