@@ -41,6 +41,6 @@
 ## 9:00 to 11:15 
 - Dr. Jaswinder Singh Gave us the great lecture us about gurmat, science as well as mathematics
 ## 11:15 to 1:15 
-Dr. Priya Darshani Mam introduced us with "Universal Human Values"
+- Dr. Priya Darshani Mam introduced us with "Universal Human Values"
  
   
