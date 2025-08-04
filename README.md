@@ -42,5 +42,15 @@
 - Dr. Jaswinder Singh Gave us the great lecture us about gurmat, science as well as mathematics
 ## 11:15 to 1:15 
 - Dr. Priya Darshani Mam introduced us with "Universal Human Values"
+# Day 4
+## 9:30 TO 10:30
+Today was our first lecture of college which was of English taken by Prof.Aastik Sharma.He asked us to give introduction,why we choose this college and also this branch.We also came to know our strengths and weakness. He also gave his introduction and also told us about our subject which is fully based on profeesional communication.
+## 10:30 to 11:30 
+It was our chemistry lecture in which Prof.Karan Bhalla introduced himself and his subject which he is going to teach. He also asked for our vision and told about marking system,attendance and MST.We also got some knowledge about Universal Human Values.
+## 12:30 to 2:30 
+Dr. Priya Darshani Mam told us about the difference between excitement and happiness,which is more important for us.In this session we also understood about the stages of excitement,indulgence,depression,escape.Importance of understanding yourself - imagination,natural acceptance. Ways of fascinating the things are pre- conditioning,sensation,desire.
+## 2:30 to 3:30 
+Seniors introduced us with causmic club and activities performed by causmic club members.
+They also told us about the laptop knowledge and which one would be best for our entire career life.
  
   
