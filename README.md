@@ -52,5 +52,12 @@ Dr. Priya Darshani Mam told us about the difference between excitement and happi
 ## 2:30 to 3:30 
 Seniors introduced us with causmic club and activities performed by causmic club members.
 They also told us about the laptop knowledge and which one would be best for our entire career life.
+# Day 5
+## 9:30 to 10:30 
+Today our first lecture was of P2P which was taken by our seniors.They gave us the basic information about C++ language so that it might be easier and helpful for us for our further studies. They also guided us about Datatypes,tools to represent a problem- algorithm,Pseudo code,flowchart and also the step by step procedure to solve a particular problem.
+## 10:30 to 11:30 
+Next was our BEEE lecture which was taken by Prof. Simranjeet Kaur.She introduced herself and also about the subject. Then our introduction starts till the time we saw the syllabus. She also explained the syllabus that we will be doing further.
+## 11:30 to 12:30 
+It was our physics lecture, we introduced ourself and then our professor told us about the topics that are necessary for the upcoming experiments.
  
   
