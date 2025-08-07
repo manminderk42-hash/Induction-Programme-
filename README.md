@@ -59,5 +59,26 @@ Today our first lecture was of P2P which was taken by our seniors.They gave us t
 Next was our BEEE lecture which was taken by Prof. Simranjeet Kaur.She introduced herself and also about the subject. Then our introduction starts till the time we saw the syllabus. She also explained the syllabus that we will be doing further.
 ## 11:30 to 12:30 
 It was our physics lecture, we introduced ourself and then our professor told us about the topics that are necessary for the upcoming experiments.
- 
+# Day 6
+## 9:30 to 10:30 
+Our first lecture was of mathematics which was taken by Prof. Sukhminder Singh in which he told us about few apps whcih were geogebra,walfram alpha etc in which we can resolve the difficult questions as well as it helps us to make 3d, 2d shapes or the graphs. As we were given the task to draw the circle, parabola and he guided us how to make sphere using this application.It is very useful for us during our studies and easier too.
+## 10:30 to 11:30 
+This lecture was conducted by our seniors in which we learnt about C++ language. They told us about the terms cin and cout. They also assigned us the task which we have completed with the help of our seniors as they were very helpful and also a nice tutor.
+## 1:30 to 2:15
+Our college trustee and also member of SGPC,Sr.Gurcharan Singh Grewal welcomed us in this prestigious college and also told about the hostels,faculty and also about the anti free ragging college which is the most important point for us as the new joiners.
+## 2:15 to 4:10 
+Dr. Lakhvir Singh Khana who is the incharge of CML tolde many intersting and useful things about this programme. He also told about the free learning platform which is Swayam-NPTEL in which we can join free courses and get the certificates that surely be helpful for getting the jobs.
+# Day 7
+## 9:30 to 10:30 
+Dr. Parminder Singh ( Dean- Student welfare) make us aware about the college.He also showed hostels,sports complex,dispensaries,canteens and many more through his presentation which we were delighted to know about the college.
+## 10:30 to 11:30 
+Dr. Amit Kamra who is the incharge of DMC (Digital Marketing Club) told us about this club and what is the purpose of this club,what else they do in the club. They showed up some videos which were made by them and also what all thing we need to make our college popular and most reputed college of India.
+## 11:30 to 12:30 
+Dr. Randhir Singh acknowledge us with the process of conduction of examination.
+## 1:30 to 2:30 
+Seniors took the lecture of P2P in which we did the task as well as they told us about the operators,if else and else if statement and assigned us the task.
+## 2:30 to 3:30 
+Prof. Karan Bhalla told us about the chemistry syllabus and also teached us about the water chemistry in which we studied about hardness and softness of water and R.O(Reverse Osmosis).
+
+
   
