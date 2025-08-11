@@ -86,7 +86,10 @@ This was the lecture of BEEE and in this lecture we were taught about the DC Cir
 This was an interesting lecture taken by Prof. Jaswant Singh we came to know about computer science branch and information technology. It was the most interesting lecture as it was the interactive session.
 # Day 8
 ## 9:30 to 10:30 
-Today was the first lecture of Maths which was taken by Pragya mam 
+Today was the first lecture of Maths which was taken by Pragya mam she gave the information about marking scheme and syllabus. She also started the syllabus.
+## 10:30 to 11:30 
+It was lecture of chemistry by Amandeep Mam. She told about her studying techniques and the syllabus which we are going study.
+
 
 
   
