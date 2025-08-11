@@ -89,7 +89,11 @@ This was an interesting lecture taken by Prof. Jaswant Singh we came to know abo
 Today was the first lecture of Maths which was taken by Pragya mam she gave the information about marking scheme and syllabus. She also started the syllabus.
 ## 10:30 to 11:30 
 It was lecture of chemistry by Amandeep Mam. She told about her studying techniques and the syllabus which we are going study.
-
-
+## 12:30 to 1:30 
+This was our BEEE lecture and in this we studied resistance in series and parallel and also we were introduced with the network terminology.
+## 1:30 to 2:30 
+English is the subject which we are going to acknowledge from Parneet mam and she gave her introduction and asked for the activity which we also participated in the class.
+## 2:30 to 3:30 
+This was the time for our maths tutorial in which we practiced sums.
 
   
