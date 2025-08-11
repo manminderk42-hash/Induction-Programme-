@@ -79,6 +79,14 @@ Dr. Randhir Singh acknowledge us with the process of conduction of examination.
 Seniors took the lecture of P2P in which we did the task as well as they told us about the operators,if else and else if statement and assigned us the task.
 ## 2:30 to 3:30 
 Prof. Karan Bhalla told us about the chemistry syllabus and also teached us about the water chemistry in which we studied about hardness and softness of water and R.O(Reverse Osmosis).
+# Day 7
+## 9:30 to 10:30 
+This was the lecture of BEEE and in this lecture we were taught about the DC Circuit and the basic terminology of Electricity and its basics.
+## 10:30 to 12:30 
+This was an interesting lecture taken by Prof. Jaswant Singh we came to know about computer science branch and information technology. It was the most interesting lecture as it was the interactive session.
+# Day 8
+## 9:30 to 10:30 
+Today was the first lecture of Maths which was taken by Pragya mam 
 
 
   
