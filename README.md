@@ -95,5 +95,10 @@ This was our BEEE lecture and in this we studied resistance in series and parall
 English is the subject which we are going to acknowledge from Parneet mam and she gave her introduction and asked for the activity which we also participated in the class.
 ## 2:30 to 3:30 
 This was the time for our maths tutorial in which we practiced sums.
+# Day 9
+## 8:30 to 9:30 
+This was the lecture of BEEE and in this lecture we studied kirchoff's law.
+
+
 
   
