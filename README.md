@@ -98,6 +98,12 @@ This was the time for our maths tutorial in which we practiced sums.
 # Day 9
 ## 8:30 to 9:30 
 This was the lecture of BEEE and in this lecture we studied kirchoff's law.
+# From 11th of august till 22nd august regular classes were attended.
+# Day 10 
+## 8:45 to 12:30 
+Firstly we were introduced with the two amazing clubs of our college. One was English Club and other was mathemagic. In mathemagic we came to know about few competitions realted to maths and other curricular activities.
+Then Mr. Jatinder Singh told us about IKIGAI which is known as school of AI.
+In this amazing lecture we get to know about AI revolution. 
 
 
 
